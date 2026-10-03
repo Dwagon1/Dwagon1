@@ -1,1 +1,1 @@
-i'm bad a this so your getting nothing
+i'm bad at this so your getting nothing
